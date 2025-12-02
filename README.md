@@ -4,7 +4,7 @@ Aquí está el punto EXE:
 
 *Descargar:* https://mega.nz/folder/n5gzCCiK#6_c4o8ADYq-MrtS2FrdbYw
 
-*Si no te deja abrir: (Obiamente no te va a dejar habrirlo)
+*Si no te deja abrir: (Obiamente no te va a dejar abrirlo)
 
 *Hacer los siguientes pasos*
 
